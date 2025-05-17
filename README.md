@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do levisilva135 🖥️
+## Welcome to levisilva135's profile 🖥️
 
  <div>
   <a href="https://github.com/levisilva135">
